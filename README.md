@@ -1,3 +1,3 @@
 # theoteck.github.io
 
-##under construction
+idk how it works
